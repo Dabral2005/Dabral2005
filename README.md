@@ -3,9 +3,9 @@
 
 - 🌱 I’m currently learning **Ethical Hacking**
 
-- 👯 I’m looking to collaborate on **Cybersecurity Projects**
+- 👯 I’m looking to collaborate on **Projects**
 
-- 💬 Ask me about **Cybersecurity**
+- 💬 Ask me about **Cybersecurity, Web Devlopment**
 
 - 📫 How to reach me **dabralmohit78@gmail.com**
 
