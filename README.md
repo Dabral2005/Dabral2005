@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **dabralmohit78@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/121vSGv280w3zDshcYW9IhLgfLD7m88yS/view?usp=sharing](https://drive.google.com/file/d/121vSGv280w3zDshcYW9IhLgfLD7m88yS/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1byhn6Ms-5Vlvmm6rY4pxIcBC3ZEK6hZx/view?usp=drivesdk
 
 - ⚡ Fun fact **I like cooking**
 
